@@ -1,2 +1,0 @@
-# Herbal-plants
-Group VI
